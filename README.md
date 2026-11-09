@@ -1,30 +1,28 @@
-<p align="center"><a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FY0ur4ddict3dGambl3r%2FY0ur4ddict3dGambl3r"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FY0ur4ddict3dGambl3r%2FY0ur4ddict3dGambl3r&label=Gambled&labelColor=%23ac3f2b&countColor=%23efb758&style=plastic&labelStyle=upper" /></a>
+<p align="center"><a href="https://visitorbadge.io//status?path=https%3A%2F%2Fgithub.com%2FEcxhiaB1tter"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FEcxhiaB1tter&label=Nightshades&labelColor=%2388c965&countColor=%23f4ecc2&style=plastic&labelStyle=upper" /></a>                                                                
+                                                                                                                                                             <p align="center"><img width="26" height="16" alt="22460137_8YiSDldX14crTHy" src="https://github.com/user-attachments/assets/aad5507a-954d-456a-8565-cac52658fd75" /><img width="26" height="16" alt="22461205_3l1VKp5w0kcyqZ2" src="https://github.com/user-attachments/assets/8a2fe915-fbed-4b46-95ab-44d31fa9547f" /><img width="26" height="16" alt="22494384_g0fuyj0PaJnLxQk" src="https://github.com/user-attachments/assets/e4e0453c-4f57-4b07-84d7-8782366ae58a" />
 
-
-<p align="center"><img width="26" height="16" alt="22460137_8YiSDldX14crTHy" src="https://github.com/user-attachments/assets/aad5507a-954d-456a-8565-cac52658fd75" /><img width="26" height="16" alt="22461205_3l1VKp5w0kcyqZ2" src="https://github.com/user-attachments/assets/8a2fe915-fbed-4b46-95ab-44d31fa9547f" /><img width="26" height="16" alt="22494384_g0fuyj0PaJnLxQk" src="https://github.com/user-attachments/assets/e4e0453c-4f57-4b07-84d7-8782366ae58a" />
-
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&pause=1000&color=A5C0B6&center=true&vCenter=true&width=435&lines=Take+a+Chance+BOY+!!;0000.01%25+CHANCE+WHO+DIDNT+QUIT" alt="Typing SVG" /></a>
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&pause=1000&color=C9DCB3&center=true&vCenter=true&width=435&lines=Spring+'s+Github;SIGN+ATA+PLS" alt="Typing SVG" /></a>
   
 <!--GRAPHIC 1-->
-<p align="center"><img width="736"  alt="Untitled15_20261022142242" src="https://github.com/user-attachments/assets/e7d9730d-171c-46aa-9ae0-14bbc8ca2b88" />
+<p align="center"><img width="1199"  alt="Untitled4_20261108211904" src="https://github.com/user-attachments/assets/dbe11797-836c-4cc4-953a-f0749a6b7c28" />
+
 
 
 <!--INFO-->
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝙄𝙉𝙁𝙊}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝙄𝙉𝙁𝙊}}$$
   </summary>
 </p>
 <div align= "center">
     <p align="center">$${\color{#A5C0B6FF}\textbf{𝙂𝙧𝙚𝙚𝙩𝙞𝙣𝙜𝙨. 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙢𝙮 𝙜𝙞𝙩𝙝𝙪𝙗.}}$$
     <p align="center">$${\color{#A5C0B6FF}\textbf{𝙋𝙚𝙤𝙥𝙡𝙚 𝙞𝙢 𝙘𝙤𝙢𝙛𝙤𝙧𝙩𝙖𝙗𝙡𝙚 𝙬𝙞𝙩𝙝 𝙖𝙧𝙚 𝙢𝙤𝙨𝙩𝙡𝙮 𝙬𝙞𝙩𝙝 𝙢𝙚.}}$$
-    <p align="center">$${\color{#A5C0B6FF}\textbf{𝙄𝙢 𝙞𝙣 𝙖 𝙧𝙚𝙖𝙡𝙩𝙞𝙤𝙣𝙨𝙝𝙞𝙥}}$$
     <p align="center">$${\color{#A5C0B6FF}\textbf{𝙄𝙢 𝙢𝙤𝙨𝙩𝙡𝙮 𝙣𝙤𝙩 𝙞𝙣 𝙩𝙝𝙚 𝙘𝙧𝙤𝙬𝙙𝙨. 𝙎𝙞𝙣𝙘𝙚 𝙢𝙮 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙖𝙧𝙚 𝙢𝙤𝙨𝙩𝙡𝙮 𝙩𝙝𝙚𝙧𝙚}}$$
     <p align="center">$${\color{#A5C0B6FF}\textbf{4 𝙮𝙚𝙖𝙧𝙨 𝙙𝙞𝙜𝙞𝙩𝙖𝙡 , 𝙩𝙧𝙖𝙙𝙞𝙩𝙞𝙤𝙣𝙖𝙡 𝙖𝙧𝙩𝙞𝙨𝙩 𝙞 𝙢𝙤𝙨𝙩𝙡𝙮 𝙙𝙧𝙖𝙬 𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜 𝙞 𝙬𝙖𝙣𝙩.}}$$
     <p align="center">$${\color{#A5C0B6FF}\textbf{𝙁𝙚𝙚𝙡 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙖𝙨𝙠/𝙧𝙚𝙦𝙪𝙚𝙨𝙩 𝙢𝙚 𝙩𝙤 𝙙𝙧𝙖𝙬 𝙨𝙤𝙢𝙚𝙩𝙝𝙞𝙣𝙜 𝙮𝙤𝙪 𝙬𝙖𝙣𝙩 !, 𝙞 𝙬𝙤𝙪𝙡𝙙 𝙡𝙤𝙫𝙚 𝙩𝙤.}}$$
     <p align="center">$${\color{#A5C0B6FF}\textbf{𝑷𝒆𝒐𝒑𝒍𝒆 𝒄𝒂𝒍𝒍 𝒎𝒆}}$$
-    <p align="center">$${\color{#A5C0B6FF}\textbf{𝑴𝒂𝒇𝒊/𝒎𝒂𝒇 , 𝑺𝒑𝒓𝒊𝒏𝒈 , 𝑻𝒉𝒐𝒎𝒂𝒔 , 𝑬𝒎𝒊}}$$
+    <p align="center">$${\color{#A5C0B6FF}\textbf{𝑴𝒂𝒇𝒊/𝒎𝒂𝒇 , 𝑺𝒑𝒓𝒊𝒏𝒈 , 𝑻𝒉𝒐𝒎𝒂𝒔 , 𝑬𝒎𝒊 , 𝑬𝒈𝒈/𝑬𝒈𝒈𝒚 , 𝑬𝒍𝒊𝒂𝒔}}$$
    </details>
 
 <p align="center">$${\color{#A5C0B6FF}\textbf{...}}{\color{#A5C0B6FF}\textbf{୨}}{\color{#A5C0B6FF}\textbf{✩}}{\color{#A5C0B6FF}\textbf{୧}}{\color{#A5C0B6FF}\textbf{...}}$$
@@ -32,7 +30,7 @@
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚𝙨}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝙁𝙖𝙫𝙤𝙧𝙞𝙩𝙚𝙨}}$$
   </summary>
 </p>
 <div align= "center">
@@ -45,7 +43,7 @@
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝑭𝒓𝒊𝒆𝒏𝒅𝒔}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝑭𝒓𝒊𝒆𝒏𝒅𝒔}}$$
   </summary>
 </p>
 <div align= "center">
@@ -56,13 +54,14 @@
 
 <p align="center">$${\color{#A5C0B6FF}\textbf{...}}{\color{#A5C0B6FF}\textbf{୨}}{\color{#A5C0B6FF}\textbf{✩}}{\color{#A5C0B6FF}\textbf{୧}}{\color{#A5C0B6FF}\textbf{...}}$$
 
-<p align="center"><img width="3825" alt="Untitled12_20261022150920" src="https://github.com/user-attachments/assets/215fb79e-eec8-4ab3-8469-a426f3c95a96" />
+<p align="center"><img width="373"  alt="Untitled3_20261108175536" src="https://github.com/user-attachments/assets/2c8ecc3e-efb4-474d-b0e7-d8ae4c296ec3" />
+
 
 
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝑺𝒆𝒓𝒗𝒆𝒓 , 𝒑𝒍𝒂𝒄𝒆}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝑺𝒆𝒓𝒗𝒆𝒓 , 𝒑𝒍𝒂𝒄𝒆}}$$
   </summary>
 </p>
 <div align= "center">
@@ -73,14 +72,13 @@
 
 <p align="center">$${\color{#A5C0B6FF}\textbf{...}}{\color{#A5C0B6FF}\textbf{୨}}{\color{#A5C0B6FF}\textbf{✩}}{\color{#A5C0B6FF}\textbf{୧}}{\color{#A5C0B6FF}\textbf{...}}$$
   
-<p align="center"><img width="736" " alt="Untitled15_20261022143420" src="https://github.com/user-attachments/assets/1087f256-a9ad-402e-83ca-82165e515d59" />
+<p align="Right"><img width="601" alt="Untitled2_20261108175508" src="https://github.com/user-attachments/assets/b09c0061-a297-48f0-a899-2989689ebac8" />
 
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&pause=1000&color=A5C0B6&center=true&vCenter=true&width=435&lines=Haha+!!+Gotta+Run+!+CYa+!" alt="Typing SVG" /></a>
-  
+
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝑺𝑯𝑰𝑷𝑺}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝑺𝑯𝑰𝑷𝑺}}$$
   </summary>
 </p>
 <div align= "center">
@@ -101,7 +99,7 @@
 <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝑩𝑰𝑹𝑻𝑫𝑨𝒀 , 𝑭𝑨𝑴𝑰𝑳𝒀}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝑩𝑰𝑹𝑻𝑫𝑨𝒀 , 𝑭𝑨𝑴𝑰𝑳𝒀}}$$
   </summary>
 </p>
 <div align= "center">
@@ -118,7 +116,7 @@
   <div align="center">
 <details>
   <summary>
-    $${\Large\color{#A5C0B6FF}\textbf{𝙁𝙞𝙘𝙩𝙠𝙞𝙣/𝙃𝙫𝙮𝙁𝙞𝙘𝙩𝙠𝙞𝙣}}$$
+    $${\Large\color{#C9DCB3}\textbf{𝙁𝙞𝙘𝙩𝙠𝙞𝙣/𝙃𝙫𝙮𝙁𝙞𝙘𝙩𝙠𝙞𝙣}}$$
   </summary>
 </p>
 <div align= "center">
@@ -134,18 +132,18 @@
 
   
       
-<p align="center"><img width=936"  alt="Untitled16_20261022143551" src="https://github.com/user-attachments/assets/a72593e1-ba56-446c-bf77-0f0b31db12ea" />
-
-
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=26&pause=1000&color=A5C0B6&center=true&vCenter=true&width=435&lines=PRIDE+DUO+!!" alt="Typing SVG" /></a>
-<p align="center"><img width="3825" alt="Lace" src="https://github.com/user-attachments/assets/f820fb84-fb92-4453-ae24-c5e0091cff07" />
-
-<p align="center"><img width="736"  alt="Untitled15_20261022143236" src="https://github.com/user-attachments/assets/65780c5b-9170-4bba-9dfb-e4cd8c492b00" />
-<p align="center"<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=30&pause=1000&color=A5C0B6&center=true&vCenter=true&width=435&lines=Heyya+Twoie+!!+%5E%5E" alt="Typing SVG" /></a>
+<p align="center"><img width="736" height="414" alt="80697a9ad09c42712479044a6f3b5c69" src="https://github.com/user-attachments/assets/560875c6-9ab2-4c95-b72b-f98e2e9cf1bd" />
 
 
 
-<p align="center"><img width="700" alt="Weirdcore" src="https://github.com/user-attachments/assets/b6d030db-1064-43a7-9611-046f44ca4b57" />
+
+<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=26&pause=1000&color=C9DCB3&center=true&vCenter=true&width=435&lines=Azure+Time+!!" alt="Typing SVG" /></a>
+<p align="center"><img width="900" alt="Untitled6_20261108195235" src="https://github.com/user-attachments/assets/fe5afcfc-f8e7-4be2-bf19-74075ae5bdbe" />
+
+<p align="center"><img width="734" alt="9d6192e266fc22a67beeb8f1095dd548" src="https://github.com/user-attachments/assets/d24f100e-1750-4480-bf28-77a43e6917b8" />
+
+<p align="center"<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=30&pause=1000&color=C9DCB3&center=true&vCenter=true&width=435&lines=Cmon+TwoTime+!!;ok+ok+Wait+up+!!" alt="Typing SVG" /></a>
+
 
 
 
